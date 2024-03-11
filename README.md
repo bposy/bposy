@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bposy
+- 👋 Hi, I’m Benjamin (@bposy)
 - 👀 I’m interested in coding and Pokemon
 - 🌱 I’m currently learning GIT215
 - 💞️ I’m looking to collaborate on ...
