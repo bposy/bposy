@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me bposy@asu.edu
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I met Sasha Colby twice
+- ⚡ Fun fact: I met Sasha Colby twice (edit three times as of March 24, 2024
 
 
